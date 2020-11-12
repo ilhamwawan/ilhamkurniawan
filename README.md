@@ -12,7 +12,7 @@ Terima kasih.
 ##English
 The author is a graduate of mathematics from Unversitas Negeri Semarang.
 Github is referred to as a repository of portfolios and a means of sharing knowledge to make it easier for everyone.
-The author realizes that the science is important to share so that every Indonesian citizen can enjoy insight without limits, with the encouragement of sharing god willing Github this can be useful for everyone. If there are any criticisms and suggestions can be sent to the author's email ilham.k.wawan@gmail.com atau https://www.linkedin.com/in/ilham-kurniawan/
+The author realizes that the science is important to share so that every Indonesian citizen can enjoy insight without limits, with the encouragement of sharing god willing Github this can be useful for everyone. If there are any criticisms and suggestions can be sent to the author's email ilham.k.wawan@gmail.com or https://www.linkedin.com/in/ilham-kurniawan/
 In the future, the author hopes to share various things through various media such as youtube, blog/web, or podcast series.
 Indeed, whoever shares his knowledge even if it is a drop of water insha Allah will be useful to everyone. 
 Thanks 
